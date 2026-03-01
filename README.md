@@ -1,3 +1,3 @@
 - 👋 Hi, I’m Muhammad Azeem
-- 🌱 I’m currently looking for internships
+
 - 📫 My linkedin: https://www.linkedin.com/in/muhammad-azeem-474612357/
